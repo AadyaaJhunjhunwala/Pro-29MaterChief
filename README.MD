@@ -10,7 +10,7 @@ _Ingredients:_
 1. 1/2 cups of white granulated sugar (300g) 
 1. 2 Large eggs (add one at a time) 
 1. 2 Tbsp. unsweetened cocoa powder (24g) 
-1. 1 cup of buttermilk (250mL) (or use a tiny bit less then a cup plus 5 1 Tbsp. of vinegar or lemon juice, let sit for 10 minutes) 
+1. 1 cup of buttermilk (250mL) (or use a tiny bit less then a cup plus 1 Tbsp. of vinegar or lemon juice, let sit for 10 minutes) 
 1. 1 tsp. vanilla extract (5mL) 
 1. 1 tsp. of white vinegar (5mL) 
 1. 1/4 cup of oil (vegetable, etc.) (55g) 
