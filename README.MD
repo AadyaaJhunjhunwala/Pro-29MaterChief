@@ -23,22 +23,22 @@ _Ingredients:_
 
 _Helpful Tools_
 
-> Bowls
-> Hand mixer or stand mixer
-> Spatula
-> Sifter
-> Whisk
-> Measuring spoons
-> 9 inch cake pans
-> Parchment paper 
-> Shortening or kitchen spray
-> Flour or cocoa powder to dust the pans
-> Wire racks
-> Cake spatula
-> Bread knife
-> Cake pedestal 
-> Cake Icing smoother or cake comb 
-> Heart shaped cookie cutter 
+> Bowls ,
+> Hand mixer or stand mixer ,
+> Spatula ,
+> Sifter ,
+> Whisk ,
+> Measuring spoons ,
+> 9 inch cake pans ,
+> Parchment paper , 
+> Shortening or kitchen spray ,
+> Flour or cocoa powder to dust the pans ,
+> Wire racks ,
+> Cake spatula ,
+> Bread knife ,
+> Cake pedestal ,
+> Cake Icing smoother or cake comb ,
+> Heart shaped cookie cutter ,
 
 * This rich, red-colored cake is actually a chocolate cake in disguise! I make my cake layers with buttermilk, sugar, eggs and butter. The buttermilk helps intensify the red color of the cake! Since buttermilk is not readily available everywhere, I created this recipe with homemade buttermilk – whole milk and vinegar/lemon juice. If you are able to get buttermilk, use that instead. 1
 
