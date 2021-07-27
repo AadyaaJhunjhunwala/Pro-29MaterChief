@@ -18,7 +18,7 @@ _Ingredients:_
 1. 2 to 2 1/2 Tbsp. of red food coloring liquid (30 to 40 mL) 9
 1. 2 1/2 cups of all-purpose flour or cake flour (320g) 10
 1. 1 tsp. of baking soda (5g) 11
-1. 1 tsp. of salt (5g) 12
+1. 1 tsp. of salt (5g) 
 
 
 _Helpful Tools_
