@@ -6,19 +6,19 @@ The classic red velvet cake – an iconic, much-loved classic that has been arou
 
 _Ingredients:_
 
-> 1/2 cup of unsalted butter (room temperature) (115g) 1
-> 1/2 cups of white granulated sugar (300g) 2
-> 2 Large eggs (add one at a time) 3
-> 2 Tbsp. unsweetened cocoa powder (24g) 4
-> 1 cup of buttermilk (250mL) (or use a tiny bit less then a cup plus 5
-> 1 Tbsp. of vinegar or lemon juice, let sit for 10 minutes) 5
-> 1 tsp. vanilla extract (5mL) 6
-> 1 tsp. of white vinegar (5mL) 7
-> 1/4 cup of oil (vegetable, etc.) (55g) 8
-> 2 to 2 1/2 Tbsp. of red food coloring liquid (30 to 40 mL) 9
-> 2 1/2 cups of all-purpose flour or cake flour (320g) 10
-> 1 tsp. of baking soda (5g) 11
-> 1 tsp. of salt (5g) 12
+1. 1/2 cup of unsalted butter (room temperature) (115g) 1
+1. 1/2 cups of white granulated sugar (300g) 2
+1. 2 Large eggs (add one at a time) 3
+1. 2 Tbsp. unsweetened cocoa powder (24g) 4
+1. 1 cup of buttermilk (250mL) (or use a tiny bit less then a cup plus 5
+1. 1 Tbsp. of vinegar or lemon juice, let sit for 10 minutes) 5
+1. 1 tsp. vanilla extract (5mL) 6
+1. 1 tsp. of white vinegar (5mL) 7
+1. 1/4 cup of oil (vegetable, etc.) (55g) 8
+1. 2 to 2 1/2 Tbsp. of red food coloring liquid (30 to 40 mL) 9
+1. 2 1/2 cups of all-purpose flour or cake flour (320g) 10
+1. 1 tsp. of baking soda (5g) 11
+1. 1 tsp. of salt (5g) 12
 
 
 _Helpful Tools:_
@@ -40,9 +40,9 @@ _Helpful Tools:_
 > Cake Icing smoother or cake comb 
 > Heart shaped cookie cutter 
 
-*This rich, red-colored cake is actually a chocolate cake in disguise! I make my cake layers with buttermilk, sugar, eggs and butter. The buttermilk helps intensify the red color of the cake! Since buttermilk is not readily available everywhere, I created this recipe with homemade buttermilk – whole milk and vinegar/lemon juice. If you are able to get buttermilk, use that instead.
+* This rich, red-colored cake is actually a chocolate cake in disguise! I make my cake layers with buttermilk, sugar, eggs and butter. The buttermilk helps intensify the red color of the cake! Since buttermilk is not readily available everywhere, I created this recipe with homemade buttermilk – whole milk and vinegar/lemon juice. If you are able to get buttermilk, use that instead. 1
 
-*Next, add in the dry ingredients: flour, baking powder and cocoa powder. The cocoa powder will add amazing chocolate flavor! This recipe calls for just 2 tablespoons of cocoa. You don’t want to add too much cocoa, otherwise you’ll love the beautiful red color of the cake! Allow the cake layers to cool completely before adding the frosting!
+*Next, add in the dry ingredients: flour, baking powder and cocoa powder. The cocoa powder will add amazing chocolate flavor! This recipe calls for just 2 tablespoons of cocoa. You don’t want to add too much cocoa, otherwise you’ll love the beautiful red color of the cake! Allow the cake layers to cool completely before adding the frosting! 2
 
 
 **Cream Cheese Frosting**
@@ -56,15 +56,17 @@ _Ingredients:_
 1. 4 to 4 1/2 cups of confectioner's sugar (powdered sugar) (440 to 500g) 4b
 
 
-*Use a full-fat brick cream cheese, not low fat or spreadable cream cheese.
+*Use a full-fat brick cream cheese, not low fat or spreadable cream cheese. 1a
 
-*use unsalted butter and add a dash of salt so that you have complete control over the flavor of the frosting.
+*use unsalted butter and add a dash of salt so that you have complete control over the flavor of the frosting. 2a
 
-*allow your cream cheese and your butter to soften before making your frosting. Softening the butter and cream cheese ensure that your ingredients will combine well and be lump free.
+*allow your cream cheese and your butter to soften before making your frosting. Softening the butter and cream cheese ensure that your ingredients will combine well and be lump free. 3a
 
-*to pipe your frosting, sift your powdered sugar before mixing it into your butter/cream cheese mixture, as small lumps of sugar can clog up your piping tips, especially if you’re using a smaller tip. 
+*to pipe your frosting, sift your powdered sugar before mixing it into your butter/cream cheese mixture, as small lumps of sugar can clog up your piping tips, especially if you’re using a smaller tip. 4a
 
 
-*beat the softened cream cheese for 5 to 7 minutes, until it’s really smooth and creamy. You don’t want any clumps in the frosting! To ensure it’s smooth, scrape down the sides of your mixing bowl often to get everything incorporated!
+*beat the softened cream cheese for 5 to 7 minutes, until it’s really smooth and creamy. You don’t want any clumps in the frosting! To ensure it’s smooth, scrape down the sides of your mixing bowl often to get everything incorporated! 5a
+
+**ENJOY!!**
 
 
